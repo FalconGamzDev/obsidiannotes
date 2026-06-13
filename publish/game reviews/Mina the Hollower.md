@@ -9,3 +9,5 @@ Now thats where one of the issues (probably the only) of this games shows up. th
 buuut u can buy a lot of trinket slots so its balances , another "issue" people say is  the difficulty which lets be real is not all that bad. after fixing the first of your choice spark tower , and getting some bones you can level up quite a bit and upgrade your health from the tall seller dude and also upgrade or try new weapons. oh and theres the whole "adjust difficulty" thing right there for the struggling (which honestly shouldnt be there)
 
 as of right now I'm on my third spark tower and the game is really good and reminds me of my HK and Silksong playthroughs
+
+part of [[Game Reviews]]
