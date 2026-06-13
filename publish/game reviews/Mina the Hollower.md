@@ -11,3 +11,4 @@ buuut u can buy a lot of trinket slots so its balances , another "issue" people 
 as of right now I'm on my third spark tower and the game is really good and reminds me of my HK and Silksong playthroughs
 
 part of [[Game Reviews]]
+references[[Game Design]]
